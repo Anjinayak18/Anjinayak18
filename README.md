@@ -1,4 +1,3 @@
-https://github.com/Anjinayak18/Anjinayak18/blob/main/banner.png
 
 
 # 👋 Hi, I'm K. Anji Nayak  
